@@ -1,0 +1,1 @@
+this add me file is about my week1 coding .
